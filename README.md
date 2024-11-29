@@ -1,9 +1,8 @@
 ![image0](https://github.com/user-attachments/assets/0d8872f6-62a9-49be-a951-ea9aa69d041a)
-![IMG_7181](https://github.com/user-attachments/assets/e8c7f2f1-bd73-4743-ae15-085c61a16a34)
+![IMG_7183](https://github.com/user-attachments/assets/7e157e6d-5317-4cc5-86e5-d3b09c65c380)
 
-![IMG_6897](https://github.com/user-attachments/assets/a2cd0201-0817-48d3-8aa4-55e18f97872c)
-![IMG_6855](https://github.com/user-attachments/assets/5a73bb46-3420-4623-a40a-da083a18ac10)
-![IMG_6539](https://github.com/user-attachments/assets/c8ef0287-bf9c-4793-a171-cbabce7166b9)
+off topic  i really like jiji and mr. human
+![IMG_7180](https://github.com/user-attachments/assets/1f1f3d6f-0267-4d3a-8d90-9dec5b1ded08)
 <!--
 **scarletella/scarletella** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
