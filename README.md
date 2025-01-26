@@ -1,5 +1,4 @@
 ![image0](https://github.com/user-attachments/assets/0d8872f6-62a9-49be-a951-ea9aa69d041a)
-![IMG_7183](https://github.com/user-attachments/assets/7e157e6d-5317-4cc5-86e5-d3b09c65c380)
 
 off topic  i really like jiji and mr. human
 ![IMG_7180](https://github.com/user-attachments/assets/1f1f3d6f-0267-4d3a-8d90-9dec5b1ded08)
